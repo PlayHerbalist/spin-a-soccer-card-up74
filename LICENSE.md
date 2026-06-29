@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PlayHerbalist.github.io/spin-a-soccer-card-up74/ ) |
  |---------------------|----------------------:|
 
 
