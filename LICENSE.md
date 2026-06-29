@@ -1,4 +1,4 @@
-
+Experience blue lock rivals like never before with blue lock rivals Scripts secure, the #1 Script. Includes fly and aimbot for unbeatable performance.
 
 
 
